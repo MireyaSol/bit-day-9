@@ -9,5 +9,5 @@ Look up github markdown cheat sheet
 
 Peace on the streets yalllll jondfnep fnaekfnpaf nkawnfanf nfainfwianik
 
-- Fuck Bitches
+- get the homies
 - Get Money
